@@ -1,2 +1,2 @@
 # babbler
-it babbles nonsense
+"The Lord said, 'If as one people speaking the same language they have begun to do this, then nothing they plan to do will be impossible for them. Come, let us go down and confuse their language so they will not understand each other.' So the Lord scattered them from there over all the earth, and they stopped building the city. That is why it was called Babel—because there the Lord confused the language of the whole world. From there the Lord scattered them over the face of the whole earth."
